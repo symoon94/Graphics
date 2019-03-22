@@ -10,7 +10,6 @@ This cute Rilakkuma was for replying to my friend's Instagram story.
 
 My Instagram ID :point_right: [sooyoung__moon](https://www.instagram.com/sooyoung__moon/)
 
----
 
 ## Reference
 
